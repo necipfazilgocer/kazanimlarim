@@ -1,0 +1,2 @@
+# kazanimlarim
+kazanimlarim
